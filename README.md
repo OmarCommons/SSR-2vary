@@ -12,6 +12,6 @@
 
 [XXYUN 加速](https://www.xx-yun.com/?code=5r5AXWEG)
 
-[苏菲家宽](https://www.sufe.pro/#/register?code=VA1k1GVa)
+[苏菲家宽](https://www.sufe.us/register?code=VA1k1GVa)
 
 [飞鸟云](https://www.112112789.xyz/?code=XRavbdEb)
